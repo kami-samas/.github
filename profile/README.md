@@ -11,4 +11,5 @@
 
 ## Notes
 Any of the names, pictures which refer to copyrighted content is not owned by this entity, and is being used non commercially.
+
 We are in no way affiliated by the companies that owns the anime, nor the production team that brought the anime together, and is not, in any way, benefit financially from the sales the series produces.
